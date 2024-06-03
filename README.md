@@ -2,7 +2,7 @@
 
 Meu nome é Andrey Bueno,     Vulgo *Belezinha*.    SEGUE NO INSTA: (**@belezinhaa_041**);
 
-- Estou estudando na [Alura](htts
+- Estou estudando na [Alura](https://www.alura.com.br)
 - Meu hobby é jogar futsal/futebol;
 - Tenho 17 anos;
 
